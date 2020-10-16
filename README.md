@@ -1,2 +1,2 @@
 # wallpapers
-Great wallpapers, the best even
+Great wallpapers!, the best even!
